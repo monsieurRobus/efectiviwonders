@@ -1,3 +1,0 @@
-# SITIO WEB DE EFECTIVIWONDERS
-## por monsieurDev
-
